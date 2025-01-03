@@ -25,4 +25,4 @@ Our [episodes](https://www.youtube.com/watch?v=i2tEHxiiim8&list=PLBVPSwW1G3eAYuk
 
 Stay updated with **The Tech Wise Stream** by subscribing and turning on notifications. Don’t forget to like, comment, and share your favorite episodes. Follow us for the latest in tech innovation, trends, and insights!  
 
-**#TechWiseStream #TechNews #GadgetReviews #AI #Gaming #Innovation #FutureTech**  
+**#[TechWiseStream](https://www.youtube.com/@TechWiseStream/community) #TechNews #GadgetReviews #AI #Gaming #Innovation #FutureTech**  
